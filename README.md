@@ -1,0 +1,3 @@
+# GenerowaniePodzbiorow
+
+https://ideone.com/
